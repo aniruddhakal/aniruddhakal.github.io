@@ -1,1 +1,0 @@
-# aniruddhakal.github.io
